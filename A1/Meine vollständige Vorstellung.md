@@ -1,4 +1,4 @@
-# 🇩🇪 Meine vollständige Vorstellung
+# Meine vollständige Vorstellung
 
 ## معرفی کامل من
 
